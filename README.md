@@ -1,1 +1,1 @@
-acunmedya hafta2
+acunmedya akademiq hafta2

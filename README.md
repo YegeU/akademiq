@@ -1,1 +1,1 @@
-# akademiq
+# akademiq hafta2
